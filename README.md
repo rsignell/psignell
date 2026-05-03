@@ -1,6 +1,6 @@
 # Chronicles of Peter Signell
 
-Interview videos with **Peter Stewart Signell**, a retired physics professor at Michigan State University, conducted by a young friend of his son Rich. Recorded remotely during the COVID-19 pandemic.
+Interview videos with **Peter Stuart Signell**, a retired physics professor at Michigan State University, conducted by a young friend of his son Rich. Recorded remotely during the COVID-19 pandemic.
 
 | Part | Video | Topics |
 |------|-------|--------|
