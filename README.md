@@ -98,11 +98,9 @@ Key island history:
 - Someone once cleared the north shore woods to graze sheep; it proved unprofitable.
 - Around 1885, a group of Boston investors bought the island, divided it into hundreds of tiny lots, and built a grand hotel. Liz's relative managed that hotel around the turn of the 20th century, establishing the family's connection to the island.
 - **Levi Gunn** and Ed Damon were the last officers of the Heron Island Company; Gunn charged residents for docking, water, and anything else he could, and was widely resented.
-- When Gunn died, his widow — entirely unlike him — hired lawyers to help residents form **JAVIS** (the Heron Island Homeowners Association). Josh Thompson, Gunn's social enemy in the cottage by the tennis court, refused to join for decades; his daughter Mary Thompson finally joined years later, to great applause.
+- When Gunn died, his widow — entirely unlike him — hired lawyers to help residents form **HIVIS** (the Heron Island Homeowners Association). Josh Thompson, Gunn's social enemy in the cottage by the tennis court, refused to join for decades; his daughter Mary Thompson finally joined years later, to great applause.
 - The hotel burned down in 1918, widely believed to be an insurance fire — no newspaper of the day mentioned it, and no one talked about it.
 - The island's tennis cup, won three times in a row by Liz's cousin Bill in the 1920s–30s, sits on the mantle at the Barnacle.
-
-Peter now owns a share of the **Barnacle** cottage jointly with his son Steve (Steve manages it and will eventually inherit Peter's share); Rich owns **Morris Cottage**, which Peter gave him. Eric, the western son, seldom visits — his partner finds the island too hot and humid.
 
 The interview closes warmly, with the young interviewer planning to visit Heron Island before leaving for college, and Peter inviting him to come.
 
