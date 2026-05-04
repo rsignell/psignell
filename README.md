@@ -1,6 +1,6 @@
 # Chronicles of Peter Signell
 
-Interview videos with **Peter Stuart Signell**, a retired physics professor at Michigan State University, conducted by a young friend (Khable DeLeon) of his son Rich and wife Libby. Recorded remotely during the COVID-19 pandemic.
+Interview videos with **Peter Stuart Signell**, a retired physics professor at Michigan State University, conducted by a young friend (Khaleb DeLeon) of his son Rich and wife Libby. Recorded remotely during the COVID-19 pandemic.
 
 | Part | Video | Topics |
 |------|-------|--------|
@@ -102,7 +102,7 @@ Key island history:
 - The hotel burned down in 1918, widely believed to be an insurance fire — no newspaper of the day mentioned it, and no one talked about it.
 - The island's tennis cup, won three times in a row by Liz's cousin Bill in the 1920s–30s, sits on the mantle at the Barnacle.
 
-The interview closes warmly, with the young interviewer planning to visit Heron Island before leaving for college, and Peter inviting him to come.
+The interview closes warmly, with the young interviewer (Khaleb DeLeon) planning to visit Heron Island before leaving for college, and Peter inviting him to come.
 
 ---
 
